@@ -6,4 +6,6 @@
 - ❤️ I love ...: I love to knit :sheep:
 - ❤️ I love ...: I love coffee ☕️
 
+![Codewars ](https://www.codewars.com/users/ClaudiaSollinger/badges/small)
+
 ☕️ ❤️ :sheep:🦉 ☕️ ❤️ :sheep:🦉 ☕️ ❤️ :sheep:🦉 ☕️ ❤️ :sheep:🦉 ☕️ ❤️ :sheep:🦉 ☕️ ❤️ :sheep:🦉 ☕️ ❤️ :sheep:🦉 ☕️ ❤️ :sheep:🦉
